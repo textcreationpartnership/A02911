@@ -35,9 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A pore helpe The buklar [and] defence of mother holy kyrke and weape[n] to driue he[n]ce al the agai
+
 #####Body#####
-A pore helpe The buklar [and] defence of mother holy kyrke and weape[n] to driue he[n]ce al the agai
+WIl none in al this landeStep forth & take in handThese felowes to wtstandIn number like the sandeTh
 **Types of content**
 
   * There are 395 **verse** lines!
